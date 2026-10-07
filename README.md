@@ -1,0 +1,2 @@
+# premium-cope-drag-001-cope-drag-flask-sand-cast-cr
+Tired of juggling scattered notes, sketches, and material specs across multiple apps while managing cope-drag casting projects? The Cope &amp; Drag Flask Sand Cast Craft Hub consolidates your entire foundry workflow into one beautifully organized Notion system.  This template eliminates the chaos of tracking flask designs, sand compositions, cope-drag
